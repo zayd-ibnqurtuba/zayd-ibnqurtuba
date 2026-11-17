@@ -20,18 +20,18 @@
 
 ## ✦ À propos
 
-Une identité inspirée des routes d’**Al-Andalus**, du **Maghreb** et de la **Méditerranée** — entre les manuscrits, les cartes et les échanges.
+Je m’inspire des routes d’**Al-Andalus**, du **Maghreb** et de la **Méditerranée** — des manuscrits, des cartes et des échanges qui relient les rives.
 
-Le **négociant-lettré** reçoit, vérifie, préserve et transmet. Sa promesse : rendre les savoirs accessibles **sans falsifier**, garder la confiance et honorer les sources.
+Je me reconnais dans la figure du **négociant-lettré** : je reçois, je vérifie, je préserve et je transmets. Ma promesse : rendre les savoirs accessibles **sans les falsifier**, garder la confiance et honorer les sources.
 
 <details>
 <summary><b>La posture, en trois gestes</b></summary>
 
 <br>
 
-| Recevoir | Vérifier | Transmettre |
+| Je reçois | Je vérifie | Je transmets |
 |:--:|:--:|:--:|
-| Accueillir ce qui est confié | Préserver l’exactitude et les sources | Faire circuler sans trahir |
+| J’accueille ce qui m’est confié | Je préserve l’exactitude et les sources | Je fais circuler sans trahir |
 
 </details>
 
@@ -53,11 +53,11 @@ Les mers se traversent, les lettres demeurent.
 
 ## ✦ Une boussole, deux rives
 
-Fils d’un marchand de papier et d’une lectrice de cartes, Zayd a appris à naviguer entre les écritures et les routes. Il copie deux fois les documents importants et pèse chaque mot.
+Fils d’un marchand de papier et d’une lectrice de cartes, j’ai appris à naviguer entre les écritures et les routes. Je copie deux fois les documents importants et je pèse chaque mot.
 
-Mais une boussole lui a été confiée — **et son aiguille a été remplacée**.
+Mais on m’a confié une boussole — **et son aiguille a été remplacée**.
 
-> Un sceau portant son nom circule sans qu’il ait signé l’original. Dans un document venu d’ailleurs, il reconnaît une écriture qu’il croyait disparue.
+> Un sceau portant mon nom circule alors que je n’ai jamais signé l’original. Dans un document venu d’ailleurs, je reconnais l’écriture de quelqu’un que je croyais avoir enterré.
 
 <details>
 <summary><b>Lire le nom autrement</b></summary>
